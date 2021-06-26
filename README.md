@@ -1,4 +1,6 @@
 
+I am happiest when I feel that I'm part of such a community. I'm lucky that I can feel it in my day job too。if I can't feel it，I don't feel alive。  
+
 It has to be a place useful to the world，otherwise it won't exists.  
 
 If we are useful to them，they will come.  
