@@ -1,4 +1,10 @@
 
+It has to be a place useful to the world，otherwise it won't exists.  
+
+If we are useful to them，they will come.  
+
+We either make ourselves unusual or we perish. we decided to differentiate ourselves from rest of the region.  
+
 重要的不是实现目标，而是实现目标的过程。  
 
 # 不要说现在这些困难，就是再难上 100 倍，1000 倍，我也一样能够做到  
