@@ -1,4 +1,6 @@
 
+所有的行业都是竞争太激烈了，只有读名著上，没什么人。这就是自己擅长的，这就是自己的意义  
+
 I am happiest when I feel that I'm part of such a community. I'm lucky that I can feel it in my day job too。if I can't feel it，I don't feel alive。  
 
 It has to be a place useful to the world，otherwise it won't exists.  
